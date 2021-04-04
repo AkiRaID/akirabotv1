@@ -1,0 +1,1 @@
+["kontol","memel","nub kontol","pantek"]
